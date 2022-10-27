@@ -3,5 +3,6 @@
 ### Bem vindo ao meu Livro de Receitas :baby_chick:
 
 * #### Strogonoff de Frango
-
 * Pavê
+* miojo a mineira
+
